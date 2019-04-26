@@ -4,13 +4,11 @@
 
 dli Manchurian, a delicious snack made using the leftover idlis is a fusion food of Indo Chinese and South Indian Cuisine. The process of making this manchurian is similar to Paneer Machurian, but idli pieces are used instead of paneer cubes. First, the batter coated idli pieces are shallow fried or deep fried until crispy and then tossed in the machurian sauce. If you have leftover idlis \(or fresh idlis\) and 20-25 minutes of time, then follow the below given recipe with step by step photos to make a mouth watering afternoon snack.
 
-
-
-
-
 **Cooking Time:** 15 minutes
 
 **Serves: **2 servings
+
+
 
 ## **Ingredients:**
 
@@ -46,7 +44,7 @@ dli Manchurian, a delicious snack made using the leftover idlis is a fusion food
 
 Chop all the veggies and keep aside until required.
 
-1. Cut idlis into small bite-size pieces. If possible, use leftover idlis for the best result. If you are using fresh idlis, keep them in the refrigerator for 30-45 minutes before cutting to prevent them from crumbling.
+1. Cut idlis into small bite-size pieces. If possible, use leftover idlis for the best result. If you are using fresh idlis, keep them in the refrigerator for 30-45 minutes before cutting to prevent them from crumbling.
 2. Take 2½ tablespoons cornflour\(cornstarch\), 1½ tablespoons maida, 1/4 teaspoon black pepper powder, 1/2 teaspoon red chilli powder and salt in a medium bowl.
 3. Add water little by little and make a smooth batter. It should have dripping consistency and not be very thick. Add 4-6 idli pieces in the batter at a time.
 4. Heat 2 tablespoons oil in a non-stick pan or tava over medium flame for shallow frying. Use a non-stick pan or a heavy based iron pan to prevent sticking. Coat the idli pieces evenly with the batter and place on heated pan.
@@ -60,8 +58,6 @@ Chop all the veggies and keep aside until required.
 12. Mix well and cook until mixture turns thick, it will take approx. 2-3 minutes.
 13. Add shallow fried idli pieces and green onion\(only green part\).
 14. Mix well and cook for a minute. Taste for the seasonings and add more if required. Turn off the flame. Idli Manchurian is ready for serving. Serve it hot for better taste.
-
-
 
 
 
