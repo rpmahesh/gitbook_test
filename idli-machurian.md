@@ -1,5 +1,3 @@
-# 
-
 # Idli Machurian
 
 dli Manchurian, a delicious snack made using the leftover idlis is a fusion food of Indo Chinese and South Indian Cuisine. The process of making this manchurian is similar to Paneer Machurian, but idli pieces are used instead of paneer cubes. First, the batter coated idli pieces are shallow fried or deep fried until crispy and then tossed in the machurian sauce. If you have leftover idlis \(or fresh idlis\) and 20-25 minutes of time, then follow the below given recipe with step by step photos to make a mouth watering afternoon snack.
@@ -7,6 +5,8 @@ dli Manchurian, a delicious snack made using the leftover idlis is a fusion food
 **Cooking Time:** 15 minutes
 
 **Serves: **2 servings
+
+![](/assets/idli_machurian.jpg)
 
 ## **Ingredients:**
 
