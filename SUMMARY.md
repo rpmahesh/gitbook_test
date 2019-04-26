@@ -1,5 +1,5 @@
 # Summary
 
-* [Introduction](README.md)
+* [Recipe Book](README.md)
 * [Idli Machurian](idli-machurian.md)
 
